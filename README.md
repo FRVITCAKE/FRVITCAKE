@@ -1,5 +1,6 @@
-##### <p align="center"> hi call me cosmo.. umm it/its only ^_^..! hehim is ok if pals thou.!
-##### <p align="center"> [read my..rentry](https://rentry.co/berrybrownie) :3 
+##### <p align="center"> hi call me cosmo it/its only ^_^..! hehim is ok if pals thou.!
+##### <p align="center"> iwc at all times
+##### <p align="center"> [read my rentry](https://rentry.co/berrybrownie) :3
 ##### <p align="center"> remake soon
 ##### <p align="center"> [](https://git.io/typing-svg)![](https://komarev.com/ghpvc/?username=onewheatmark&color=754351)
 
