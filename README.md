@@ -1,7 +1,5 @@
-##### <p align="center"> hi call me cosmo it/its only ^_^..! hehim is ok if pals thou.!
-##### <p align="center"> iwc at all times
-##### <p align="center"> [read my rentry](https://rentry.co/berrybrownie) :3
-##### <p align="center"> remake soon
+##### <p align="center"> [read my straw](https://frvitcake.straw.page/)
+##### <p align="center"> remake soon :p
 ##### <p align="center"> [](https://git.io/typing-svg)![](https://komarev.com/ghpvc/?username=onewheatmark&color=754351)
 
 ##### <p align="center"> i would like to note taht i am hyperfixated on fruitcake I cannt control that.. um but i actually made a whole rentry about this.. please be my friend i promise im not weird [heres the rentry](https://rentry.co/chocoberrie) ALSO PLEASE STOP MISCHARACTERIZING FRUTICAKE ILL CRY PLEASE. READ IT.
