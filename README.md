@@ -1,6 +1,5 @@
 ##### <p align="center"> my githubs a big fat wip
-##### <p align="center"> it/its only, masc terms
-##### <p align="center"> what do i even put here
+##### <p align="center"> it/its only
 ##### <p align="center"> [](https://git.io/typing-svg)![](https://komarev.com/ghpvc/?username=onewheatmark&color=754351)
 
 ##### <p align="center"> hyperfixated on fruitcake please be my friend i promise im not weird [heres a rentry explaining my view on them](https://rentry.co/chocoberrie) ALSO OH MY GOD STOP MISCHARACTERIZING FRUTICAKE ILL CRY
